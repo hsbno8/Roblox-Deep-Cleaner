@@ -4,5 +4,7 @@ This is the best B3psser for Roblox
 the 6 are false positives 
 and if you get error code 600 you will neeed to spoof THIS IS NOT A SPOOFER 
 
-
+FYI
 And QM80 made the .bat
+This was a old one i made 
+and i am young sheldon on discord
